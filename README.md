@@ -1778,7 +1778,7 @@ The sensory simulations that shaped their battlefield experience were not entire
 
 In terms of their practical logic, there was little need to dedicate so much to holding back for a moment to produce more effective frontal assaults. The strategic situation had evolved to the point where defensive positioning would allow Hannus to consolidate his technological advantages, making continued offensive pressure the only viable approach despite its obvious costs in personnel and equipment.
 
-There would be casualties every time they launched attacks against the fortress, but the ratio had significantly fallen at that time compared to earlier phases of the conflict. Whether this improvement reflected tactical learning, enemy complacency, or deliberate manipulation designed to encourage continued assault remained unclear to coalition leadership.
+There would be [their] casualties every time they launched attacks against the fortress, but the ratio had significantly fallen at that time compared to earlier phases of the conflict. Whether this improvement reflected tactical learning, enemy complacency, or deliberate manipulation designed to encourage continued assault remained unclear to coalition leadership.
 
 Back at Kangbashi, Hannus and his commanders were sitting at the decahedron table that served as the nerve center for their defensive operations. The geometric arrangement that placed him at the center while distributing his twenty-five highest-ranking subordinates around the perimeter had proven effective for coordinating responses to the multiple simultaneous threats that Ibn-Tung Jege's forces presented.
 

@@ -2082,3 +2082,63 @@ Such daydreams reflected both the inspirational impact of Hannus's visible succe
 The bullet that had killed Hunter was something more than a hard bullet, yet a sign that those things untamed are forced to go back to where they belong. It is the things that cannot be kept that can always be sold, business, business. But the human conflicts that had made his death necessary revealed weaknesses in collective organization that no amount of technological advancement could resolve through purely technical means.
 
 The philosophical divisions that warfare revealed required solutions that addressed fundamental questions about human nature and proper social organization rather than simply developing more effective weapons for eliminating those who disagreed with whatever answers particular leaders happened to prefer.
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# The Ghost City Academy
+
+# Mark Antonios Goes On A Date
+*Part 34: Modern Praetorian leaves the Asian Zone with someone and makes a detour to the USA before returning to the EU.*
+Mark Antonios hurriedly travelled out of the Asian Zone under circumstances that suggested coordinated extraction rather than spontaneous escape. His departure had been facilitated by contacts within The Modern Praetorian who possessed resources and capabilities that exceeded what individual initiative could have accomplished, indicating that his intelligence mission had reached its planned conclusion rather than been terminated by enemy action.
+
+And he brought an escapee with him—the same Maryann Isaacson de la Bakschtabbek that had been a fundamental source for Roacham's objective, the S-PAIN solution that had proven so devastatingly effective against Hannus's Spanish Facade technologies. Her liberation from coalition custody represented either remarkable good fortune or systematic planning that had been coordinated between multiple intelligence organizations.
+
+Bakschtabbek had been able to break free from her confines due to security openings left by Roacham, possibly intentionally as part of strategic calculation that her continued imprisonment served no useful purpose once her interrogation had yielded the information necessary for developing effective countermeasures against electromagnetic psychological warfare.
+
+Her release might also have been deliberate disinformation operation designed to provide enemy intelligence agencies with compromised assets whose apparent value would mask their actual function as sources of misleading information about coalition capabilities and strategic intentions.
+
+She remained somewhat hysterical despite her liberation from physical confinement, the psychological trauma of prolonged interrogation having created mental conditions that freedom alone could not resolve. She had been constantly hearing her own screams and Roacham's voice echoing in her head for about half a decade at this point, the auditory device's effects having evolved into permanent neurological damage that continued to torture her consciousness even after the original source of stimulation had been removed.
+
+The voice loop that plagued her represented a form of psychological injury that conventional medical treatment could not address, since it involved alterations to neural pathways that had been created through exposure to technologies that operated beyond the scope of normal psychiatric intervention.
+
+Mark Antonios possessed capabilities that exceeded those typically associated with intelligence operatives, skills that suggested training in disciplines that conventional espionage agencies did not normally provide to their personnel. He used an ancient Latinesque technique that could not be learned through normal means or replicated through inorganic material, knowledge that implied access to traditions that had been preserved through channels outside mainstream academic or religious institutions.
+
+The technique he employed essentially christened or baptized Bakschtabbek in the aims of healing her psychological injuries without requiring religious conversion or commitment to spiritual practices that she might not be prepared to accept or maintain. The procedure operated through principles that transcended the symbolic frameworks within which such rituals were normally understood.
+
+And it worked with immediate and complete effectiveness. Bakschtabbek no longer heard the voice loop in her head, the neurological damage that had tormented her for years suddenly and permanently resolved through intervention that conventional medicine would have considered impossible.
+
+"You are my savior, Mark," she said, her gratitude reflecting genuine relief at finally being freed from psychological torture that had made normal existence impossible. The healing represented not just medical recovery but restoration of basic human dignity and psychological autonomy.
+
+Mark grinned without baring his teeth, his expression suggesting satisfaction that was professional rather than personal, the controlled response of someone whose actions were motivated by strategic rather than humanitarian considerations.
+
+He then lifted Bakschtabbek up by the neck with strength that revealed physical capabilities that matched his unusual spiritual knowledge, demonstrating enhancement that might have been natural or artificially induced through methods similar to those employed by the various enhanced combatants in the Asian conflicts.
+
+Whispering in her ear with intimacy that carried threat rather than affection, he said, "You have a nice chest, but do not mention any of this, none of this. There are secrets in this world." The comment combined sexual assessment with explicit warning, establishing dominance while making clear that her freedom came with conditions that required absolute discretion about her rescue and healing.
+
+The secrets he referenced extended beyond immediate circumstances into realms of knowledge and capability that most populations remained unaware of, suggesting that the conflicts in Asia represented only the visible portion of much larger struggles between forces that operated according to principles that conventional analysis could not adequately comprehend or address.
+
+He then threw her into a sedan in the passenger seat with casual violence that demonstrated how quickly solicitude could transform into brutality, the same hands that had provided miraculous healing now treating her as expendable cargo rather than rescued human being.
+
+After securing her with a seatbelt—a gesture that suggested concern for her physical safety while maintaining complete control over her circumstances and destination—he began the journey that would transport her away from Asian war zones toward whatever fate awaited her in different geographical and political contexts.
+
+He travelled with her to the United States of America, a destination that offered both sanctuary from the conflicts she had experienced and potential exposure to different forms of surveillance and control that American intelligence agencies might impose on individuals whose background included intimate knowledge of advanced warfare techniques and exotic technologies.
+
+Mark served as the driver during their cross-continental journey, maintaining operational security while ensuring that his passenger remained dependent on his protection and guidance for successful transition from war zone refugee to whatever identity and circumstances he had arranged for her future existence.
+
+At a stop sign somewhere in American territory—the specific location remaining deliberately vague to prevent identification by hostile intelligence agencies—he got out of the vehicle and hauled Bakschtabbek out with the same casual efficiency he had demonstrated throughout their relationship.
+
+She flew through the air about twenty feet high before landing back down on her feet, the trajectory and impact suggesting that Mark's enhanced physical capabilities included precise control over applications of force that could achieve specific effects without causing permanent injury to their targets.
+
+"Now scram, before I make your abandonment turn into another kind of worse imprisonment," he commanded, his threat making clear that her liberation was conditional on immediate compliance with his instructions and permanent silence about their association.
+
+The warning implied that Mark possessed access to detention facilities or control mechanisms that might prove even more unpleasant than her original captivity, suggesting that The Modern Praetorian maintained operations within American territory that could reach individuals regardless of their legal status or geographical location.
+
+Bakschtabbek changed her name to something else—a new identity that would allow her to integrate into American society without carrying the burden of her previous associations with intelligence operations and advanced warfare that most civilians could not understand or accept.
+
+Some say she lived the remainder of her days as a nun, unordained by the Catholic Church but a nun all the same—finding spiritual vocation that provided both psychological healing from her traumatic experiences and practical protection from intelligence agencies that might otherwise have continued to view her as valuable asset or dangerous security risk.
+
+The religious life offered sanctuary that secular institutions could not provide, since spiritual communities operated according to principles that transcended the political and economic considerations that motivated most intelligence operations. Her choice of contemplative withdrawal represented wisdom gained through exposure to conflicts that had revealed the limitations of worldly power and the necessity of seeking peace through means that could not be compromised by external manipulation or control.
+
+The date that Mark Antonios had taken Bakschtabbek on was thus revealed to be not romantic encounter but extraction operation that had successfully removed a valuable intelligence asset from hostile territory while ensuring her permanent silence about classified information that could compromise ongoing operations across multiple theaters of conflict.
+
+The healing he had provided was genuine but instrumental, serving strategic objectives that extended far beyond individual humanitarian concern into realms of intelligence warfare where miraculous recovery could serve as effective method for ensuring loyalty and cooperation from assets whose knowledge made them too valuable to eliminate but too dangerous to abandon without proper management and control.

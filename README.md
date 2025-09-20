@@ -2186,7 +2186,7 @@ This description [is] quite objective when contrasted with the vulnerability and
 
 Representatives, commanders, even exiles and privates that had withdrawn from living hells found themselves pushed into having to do everything on their own while having to stomach the bulls and bears with their opinions on Warmonger Legacy—market metaphors for the alternating cycles of aggression and retreat that characterized both economic and military cycles.
 
-These numbers were not necessarily accurate in the modernity of healing, where medical advances and enhanced human capabilities could extend functional lifespan far beyond historical norms. But they continued to exist at these frequencies for the contexts described, suggesting deeper patterns that transcended purely biological or technological factors.
+These numbers [are] not necessarily accurate in the modernity of healing, where medical advances and enhanced human capabilities could extend functional lifespan far beyond historical norms. But they continued to exist at these frequencies for the contexts described, suggesting deeper patterns that transcended purely biological or technological factors.
 
 =
 

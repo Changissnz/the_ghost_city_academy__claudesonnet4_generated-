@@ -2241,8 +2241,6 @@ The electromagnetic technologies that gave Kangbashi its power operated through 
 
 The contrast between the coalition's organic disorder and Kangbashi's electromagnetic perfection was presented as strength rather than weakness, suggesting that authentic human development required acceptance of imperfection rather than its technological elimination.
 
-The need for artificial light to perceive reality represented dependence on technological mediation that prevented direct experience of truth that could be accessed through spiritual rather than electromagnetic enhancement.
-
 "This is not your lightning and atmosphere forever," the Vedic Master concluded.
 
 Ibn-Tung Jege then departed as abruptly as he had appeared, his spectral form dissolving into frequencies that left no trace of his presence within the temple's electromagnetic monitoring systems.

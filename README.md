@@ -2156,13 +2156,13 @@ Hannus's forces had not expected such desperate resistance from a surrounded uni
 
 Instead, the facility had become a crater that claimed attackers and defenders alike, a tactical draw that served neither side's strategic objectives while demonstrating the unpredictable psychological effects that prolonged warfare had on individual soldiers and unit commanders.
 
----
+=
 
 The Hindu red dot on the forehead was not usually worn by the wicked, traditional marking that signified spiritual devotion and cultural identity rather than malicious intent or hostile alignment. But at a certain location near one of the contested zones, there were a few dozens of such individuals, marked with holes in their foreheads instead—killed by Jege's infantry during one of their rampages that had targeted civilian populations suspected of providing intelligence or material support to Hannus's forces.
 
 The desecration of religious symbols represented escalation beyond conventional military objectives into realms of cultural warfare that served no tactical purpose while creating psychological burdens that would haunt surviving participants long after immediate conflicts had been resolved through other means.
 
----
+=
 
 A rabid aura had begun affecting other units within Jege's infantry structure, psychological contagion that spread through proximity and shared experience rather than formal command channels. A particular group of soldiers had remained crazed since the war had started, their mental state deteriorating rather than stabilizing despite prolonged exposure to combat conditions that should have produced either adaptation or elimination.
 
@@ -2170,11 +2170,11 @@ Character attacks had become routine within Jege's army, personal disputes and i
 
 The war had been raging for that long, a duration that seemed unsurprising only when considered from the perspective of the serpentine hordes that remained fixated on making Kangbashi their next meal, treating the fortress city not as military objective but as existential necessity that justified unlimited sacrifice and suffering.
 
----
+=
 
 Pulling out of the disinformation trap required recognizing how prolonged conflict had created conditions where accurate intelligence became increasingly difficult to distinguish from deliberately misleading information that served various parties' strategic deception operations.
 
----
+=
 
 62 had emerged as the usual age of death for those caught within what could only be called Warmonger Legacy—the cultural pattern that connected individual military careers to broader civilizational conflicts that extended across multiple generations. This number was debatable in terms of statistical accuracy, but examination of historical records revealed the frequency of age 62 among notable commanders who had devoted their lives to military rather than civilian pursuits.
 
@@ -2188,7 +2188,7 @@ Representatives, commanders, even exiles and privates that had withdrawn from li
 
 These numbers were not necessarily accurate in the modernity of healing, where medical advances and enhanced human capabilities could extend functional lifespan far beyond historical norms. But they continued to exist at these frequencies for the contexts described, suggesting deeper patterns that transcended purely biological or technological factors.
 
----
+=
 
 Lamentations arose from the wrong kind of help—assistance that created dependencies rather than capabilities, support that weakened recipients while strengthening providers in ways that served long-term strategic objectives rather than immediate humanitarian needs.
 

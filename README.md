@@ -2182,7 +2182,7 @@ There was a difference between those caught in Warmonger Legacy and those caught
 
 In Warmonger Legacy, age 62 represented the point where there was still work to be done despite physical decline and accumulated psychological damage. Much wisdom and experience for actionable effect had been acquired by this age, making such individuals valuable resources that justified the personal costs of continued participation in conflicts that younger soldiers could not fully understand or effectively navigate.
 
-This description became quite objective when contrasted with the vulnerability and ignorance of infancy. Age 62 also carried a hot quality, a duality centering around the number 6—the point where the serpentine leaves its hole to enter the strange spheres of eagles, metaphorical territory where ground-based persistence encountered aerial perspective and strategic vision.
+This description [is] quite objective when contrasted with the vulnerability and ignorance of infancy. Age 62 also carried a hot quality, a duality centering around the number 6—the point where the serpentine leaves its hole to enter the strange spheres of eagles, metaphorical territory where ground-based persistence encountered aerial perspective and strategic vision.
 
 Representatives, commanders, even exiles and privates that had withdrawn from living hells found themselves pushed into having to do everything on their own while having to stomach the bulls and bears with their opinions on Warmonger Legacy—market metaphors for the alternating cycles of aggression and retreat that characterized both economic and military cycles.
 

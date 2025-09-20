@@ -2196,7 +2196,7 @@ The expected feedback loops from putting together the right conditions for tensi
 
 And then came more lamentations, recursive cycles of grief and recrimination that consumed energy while producing no constructive changes in the circumstances that had generated the original problems.
 
-There was scenery visible from any observer's perspective—the visual evidence of destruction and construction, victory and defeat, progress and regression that provided raw material for analysis and interpretation according to whatever frameworks individual observers brought to their examination of events.
+[This] was scenery visible from any observer's perspective—the visual evidence of destruction and construction, victory and defeat, progress and regression that provided raw material for analysis and interpretation according to whatever frameworks individual observers brought to their examination of events.
 
 But it was only when things came together that things could then come apart, the sensitive point where apparent synthesis revealed itself as prelude to dissolution. This was the junction that blanked intellect and numbed the heart because destiny revealed itself not as unified purpose but as potential end to all coherent meaning—nothing and one simultaneously, the mathematical paradox where individual agency and collective fate intersected in ways that rational analysis could not resolve or explain.
 

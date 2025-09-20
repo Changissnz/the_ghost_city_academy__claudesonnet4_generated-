@@ -2198,6 +2198,6 @@ And then came more lamentations, recursive cycles of grief and recrimination tha
 
 [This] was scenery visible from any observer's perspective—the visual evidence of destruction and construction, victory and defeat, progress and regression that provided raw material for analysis and interpretation according to whatever frameworks individual observers brought to their examination of events.
 
-But it was only when things came together that things could then come apart, the sensitive point where apparent synthesis revealed itself as prelude to dissolution. This was the junction that blanked intellect and numbed the heart [because destiny is not as one but could be the end to all, nothing and one.]
+But it [is] only when things came together that things could then come apart, the sensitive point where apparent synthesis revealed itself as prelude to dissolution. This was the junction that blanked intellect and numbed the heart [because destiny is not as one but could be the end to all, nothing and one.]
 
 The war continued beneath the surface of tactical engagements and strategic maneuvers, through thick periods of intensive conflict and thin intervals of apparent peace that provided only temporary respite from underlying forces that operated according to logic that transcended immediate military or political calculations. Some things remained underneath, persistent patterns that would outlast particular battles, specific commanders, and even entire civilizations that believed themselves to be writing history rather than being written by it.

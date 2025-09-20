@@ -2086,7 +2086,7 @@ The philosophical divisions that warfare revealed required solutions that addres
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 # Mark Antonios Goes On A Date
-*Part 34: Modern Praetorian leaves the Asian Zone with someone and makes a detour to the USA before returning to the EU.*  
+*Part 34: Modern Praetorian Antonios leaves the Asian Zone with someone and makes a detour to the USA before returning to the EU.*  
 
 Mark Antonios hurriedly travelled out of the Asian Zone under circumstances that suggested coordinated extraction rather than spontaneous escape. His departure had been facilitated by contacts within The Modern Praetorian who possessed resources and capabilities that exceeded what individual initiative could have accomplished, indicating that his intelligence mission had reached its planned conclusion rather than been terminated by enemy action.
 

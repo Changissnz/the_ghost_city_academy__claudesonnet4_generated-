@@ -2407,9 +2407,7 @@ The baroque resistance to change was so sensitive about correct transmission and
 
 This created internal conflicts between coalition members who embraced technological enhancement as necessary adaptation and those who viewed such changes as spiritual corruption that undermined the very purposes that had originally justified their resistance to Hannus's electromagnetic supremacy.
 
-Hannus's trooper Unit 888 had prepared for Inquisition-styled measures taken against them, anticipating that their psychological warfare operations would eventually trigger organized retaliation from coalition forces that discovered the extent of their manipulation and infiltration activities.
-
-At the opportune time, after gathering adequate information on a darknet unit named Quartez Home Invasion that had been conducting independent operations against Kangbashi's supply networks, Unit 888 sent out their final response in the form of chained lightning.
+Hannus's trooper Unit 888 had prepared for Inquisition-styled measures taken against them. At the opportune time, after gathering adequate information on a darknet unit named Quartez Home Invasion that had been conducting independent operations against Kangbashi's supply networks, Unit 888 sent out their final response in the form of chained lightning.
 
 The remnants after that strike could have been dust or nothing. Instead, charred corpses remained, a choice by Unit 888 to leave them with impactful [memories] for their [passionate] questions.
 

@@ -2411,7 +2411,7 @@ Hannus's trooper Unit 888 had prepared for Inquisition-styled measures taken aga
 
 At the opportune time, after gathering adequate information on a darknet unit named Quartez Home Invasion that had been conducting independent operations against Kangbashi's supply networks, Unit 888 sent out their final response in the form of chained lightning.
 
-The remnants after that strike could have been dust or nothing. Instead, charred corpses remained, a choice by Unit 888 to leave them with impactful members for their questions.
+The remnants after that strike could have been dust or nothing. Instead, charred corpses remained, a choice by Unit 888 to leave them with impactful [memories] for their [passionate] questions.
 
 The chained lightning represented technological capability that exceeded anything the coalition could deploy, demonstrating the gap between Hannus's electromagnetic mastery and even the enhanced capabilities that his opponents had developed through their technological improvements. The attack served both as elimination of immediate threats and as psychological demonstration of his continued technological superiority.
 

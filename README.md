@@ -2389,7 +2389,7 @@ The planted evidence that surfaced during this period involved a previous operat
 
 The evidence was sophisticated enough to appear genuine while containing subtle inconsistencies that would reveal its artificial origin to careful analysis. But the time pressure of ongoing operations prevented thorough investigation, allowing suspicion to spread through coalition ranks without adequate opportunity for verification or refutation.
 
-A spectre of distrust finally showed itself in [an] explosive rage that ten infantry men [directed against] one of Jege's middle-ranking officers. The confrontation erupted when accusations based on the planted evidence created a feedback loop of recrimination and defensive positioning that made rational discussion impossible.
+A spectre of distrust finally showed itself in [an] explosive rage[, by] ten infantry men [directed against] one of Jege's middle-ranking officers. The confrontation erupted when accusations based on the planted evidence created a feedback loop of recrimination and defensive positioning that made rational discussion impossible.
 
 The incident revealed how external manipulation could exploit internal tensions that had been building throughout the prolonged siege, turning legitimate concerns about tactical effectiveness into personal attacks that served enemy objectives while weakening coalition unity and operational effectiveness.
 

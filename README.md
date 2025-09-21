@@ -2360,7 +2360,7 @@ There was unspoken ire among coalition members for Hong Kong's role in manipulat
 
 The mini-famines had affected populations that included families and communities of many coalition soldiers, creating personal motivations that aligned with strategic objectives. Soldiers who might have hesitated to attack financial targets on abstract grounds were eager to strike at systems that had caused hunger among their own people.
 
-The Hong Kong connection also represented [one of] Kangbashi's most vulnerable point of dependency, since the fortress city's technological superiority required resources and components that could not be produced locally. Severing financial networks would force Hannus to choose between maintaining his electromagnetic enhancements and preserving the economic relationships that made such enhancements sustainable.
+The Hong Kong connection also represented [one of] Kangbashi's most vulnerable point[s] of dependency, since the fortress city's technological superiority required resources and components that could not be produced locally. Severing financial networks would force Hannus to choose between maintaining his electromagnetic enhancements and preserving the economic relationships that made such enhancements sustainable.
 
 Jege's decision to target financial rather than military infrastructure reflected understanding that modern warfare often required attacking the economic foundations that supported technological capabilities rather than confronting such capabilities directly. The same lesson that Hannus had learned from his American experience—that systematic control was more effective than individual brilliance—now threatened his own carefully constructed system.
 

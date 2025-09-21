@@ -2303,7 +2303,7 @@ Guess what really changed through all this circulation? The "products" in circul
 
 Hannus saw this as greatly disingenuous expression, since the entire system depended on maintaining illusions about its purpose and effects while systematically betraying the trust of everyone who participated in it with good faith expectations.
 
-Disingenuity is commonly the mark of a future saboteur, and there are specific reasons for this connection. The dialogue and communication patterns revealed splits or sinister interests that were bound to be given support to break free from whatever enclosures currently contained their destructive potential.
+Disingenuity is commonly the mark of a future saboteur, and there are specific reasons for this connection. The dialogue and communication patterns revealed splits or sinister interests that were bound to be given support to break free from whatever enclosures currently contain[ing] their destructive potential.
 
 Furthermore, disingenuity revealed underlying trust deficits expressed as information games spearheaded from one participant to another, creating networks of mutual manipulation that made genuine cooperation impossible while ensuring that everyone involved would eventually be betrayed by someone they had trusted.
 

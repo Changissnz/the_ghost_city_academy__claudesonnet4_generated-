@@ -2393,7 +2393,7 @@ A spectre of distrust finally showed itself in [an] explosive rage[, by] ten inf
 
 The incident revealed how external manipulation could exploit internal tensions that had been building throughout the prolonged siege, turning legitimate concerns about tactical effectiveness into personal attacks that served enemy objectives while weakening coalition unity and operational effectiveness.
 
-Baroque attitudes persisted throughout these developments, which was not surprising given the disparities that had transpired within the Horde's organizational structure during this phase of the conflict. Some of Jege's infantrymen had been re-fitted with enhanced exoskeletons, each equipped with sonic amputators improved over the first version the Horde had received through reverse-engineering and technological adaptation.
+Baroque attitudes persisted throughout these developments, which [is] not surprising given the disparities that had transpired within the Horde's organizational structure during this phase of the conflict. Some of Jege's infantrymen had been re-fitted with enhanced exoskeletons, each equipped with sonic amputators improved over the first version the Horde had received through reverse-engineering and technological adaptation.
 
 This marked improvement over their base armory, which remained heavily dependent on 20th century designs in ballistic technologies. The technological upgrades created hierarchies within coalition forces that reflected access to resources rather than merit or spiritual development.
 
@@ -2438,7 +2438,7 @@ That was what she had to offer—scientific analysis that revealed the extent to
 
 ---
 
-What is the meaning of weevil in this context? The insect had become symbolic of how small, apparently insignificant threats could undermine even the most impressive military capabilities when applied with sufficient systematic coordination and scientific understanding.
+What is the meaning of weevil in this context? The insect had become symbolic of how small, apparently insignificant threats could undermine even the most impressive military capabilities.
 
 The consequences hold people back. And repercussions keep them there. These two statements do not make much sense upon further inspection past personal meanings.
 
@@ -2456,7 +2456,7 @@ How can someone do these concentrated things and move on without addressing thei
 
 They move on and continue the process because engagement with the actual significance of their work would require forms of responsibility and commitment that their institutional arrangements were specifically designed to prevent or discourage.
 
-Promiscuity is always somewhere near redeeming light—the possibility that exposure to multiple perspectives and methodologies might eventually produce genuine understanding that transcended the limitations of any single framework or institutional commitment.
+Promiscuity is always somewhere near redeeming light—the possibility that exposure to multiple perspectives and methodologies [is not the end of the absolute low.]
 
 But there are things that linger beyond such optimistic possibilities. Shades from different outlets do not naturally mix, creating intellectual and cultural conflicts that cannot be resolved through mere exposure or good intentions but require deeper transformations that most institutions and individuals were unwilling or unable to undertake.
 

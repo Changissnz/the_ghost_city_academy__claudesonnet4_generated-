@@ -2309,7 +2309,7 @@ Furthermore, disingenuity revealed underlying trust deficits expressed as inform
 
 He had watched as peers went behind each other's backs to push for their former associates being branded criminals, transforming business relationships into legal warfare that served no purpose beyond the enrichment of legal professionals who specialized in managing such conflicts.
 
-That was how the legal industry had come to profit when their medical and pharmaceutical business partners did not align with them—by creating artificial conflicts that required expensive resolution through institutional processes that served the institutions rather than the ostensible clients.
+That was how the legal industry had come to profit when their medical and pharmaceutical business partners did not align with them—by creating artificial conflicts that required expensive resolution through institutional processes [to[ serve the institutions rather than the ostensible clients.
 
 When the work was all interaction rather than production, man had to become machine and woman had to become monster in order to profit from systems that rewarded efficiency over humanity while demanding performative humanity as part of the efficiency requirements. The nature of predictability rests on reverting the novelty back onto the typographized background that yielded that novelty.
 

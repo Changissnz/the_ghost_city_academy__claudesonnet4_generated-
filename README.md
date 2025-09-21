@@ -2385,7 +2385,7 @@ Hannus had become expert at exploiting the[se] "self-generating" problems, emerg
 
 These parallels allowed him to predict and manipulate coalition behavior through strategies that treated spiritual warfare as advanced human resources management, applying lessons learned from American business culture to military operations that his opponents approached through outdated frameworks of honor and collective purpose.
 
-The planted evidence that surfaced during this period involved a previous operation by Hannus's units from before S-PAIN was produced, when his forces had relied more heavily on conventional electromagnetic weapons and direct psychological manipulation. Documents suggesting coalition complicity in civilian casualties had been strategically placed where they would be discovered by Jege's intelligence networks, creating doubt about command decisions and tactical priorities.
+The planted evidence that surfaced during this period involved a previous operation by Hannus's units[,] from before S-PAIN was produced when his forces had relied more heavily on conventional electromagnetic weapons and direct psychological manipulation. Documents suggesting coalition complicity in civilian casualties had been strategically placed where they would be discovered by Jege's intelligence networks, creating doubt about command decisions and tactical priorities.
 
 The evidence was sophisticated enough to appear genuine while containing subtle inconsistencies that would reveal its artificial origin to careful analysis. But the time pressure of ongoing operations prevented thorough investigation, allowing suspicion to spread through coalition ranks without adequate opportunity for verification or refutation.
 

@@ -2462,4 +2462,4 @@ But there are things that linger beyond such optimistic possibilities. Shades fr
 
 The weevil that infected the grain supply thus became metaphor for how apparently technical problems concealed deeper cultural and philosophical conflicts about the proper relationship between human beings and the systems they created to manage their basic needs for food, security, and meaning.
 
-Chill-See's icy demeanor protected her from immediate emotional impact of her discoveries, but it could not shield the populations who would face starvation if the biological warfare that had been deployed against their food supply could not be countered through methods that operated according to principles that the weevil's creators had not anticipated or prepared to defend against.
+Chill-See's icy demeanor protected her from immediate emotional impact of her discoveries, but it could not shield the populations who would face starvation if the pathogen against their food supply could not be countered through methods that operated according to principles that the weevil's creators had not anticipated or prepared to defend against.

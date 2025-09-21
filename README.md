@@ -2356,7 +2356,7 @@ According to Jege's army intelligence, Hong Kong's price manipulation had been a
 
 The connection between Hannus's fortress city and Hong Kong's financial networks [is] the kind of extractive relationship that had characterized Western economic arrangements—resources flowing from productive regions to administrative centers that contributed nothing to actual production while claiming credit for organizing distribution systems.
 
-There was unspoken ire among coalition members for Hong Kong's role in manipulating regional food prices, making the decision to attack Kangbashi's financial infrastructure an easy sell that required little persuasion. The suffering that Hong Kong's price manipulation [was cause for] moral justification.
+There was unspoken ire among coalition members for Hong Kong's role in manipulating regional food prices, making the decision to attack Kangbashi's financial infrastructure an easy sell that required little persuasion. The suffering [of] Hong Kong's price manipulation [was cause for] moral justification.
 
 The mini-famines had affected populations that included families and communities of many coalition soldiers, creating personal motivations that aligned with strategic objectives. Soldiers who might have hesitated to attack financial targets on abstract grounds were eager to strike at systems that had caused hunger among their own people.
 

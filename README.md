@@ -2350,7 +2350,7 @@ The infantry man, perhaps seeking reassurance about their own organizational str
 
 Jege ended the conversation with finality that brooked no further discussion: "That is all I hear when Kangbashi is mentioned. There is division with him and that is the truth without the confusion of synonyms and nuances of antonyms. Go tell the others now to prepare to cut Kangbashi's Hong Kong connection."
 
-The strategic shift [to commercial sabotage] reflected recognition that prolonged siege operations had failed to achieve decisive results while consuming resources the coalition could not afford to continue expending. Targeting Kangbashi's financial networks might prove more effective than continued military pressure against defensive systems that had proven remarkably resilient.
+The strategic shift [towards commercial sabotage] reflected recognition that prolonged siege operations had failed to achieve decisive results while consuming resources the coalition could not afford to continue expending. Targeting Kangbashi's financial networks might prove more effective than continued military pressure against defensive systems that had proven remarkably resilient.
 
 According to Jege's army intelligence, Hong Kong's price manipulation had been associated with several mini-famines in the Southern Oriental Belt during the period of the siege. The financial mechanisms sustain[ing] Kangbashi's technological advantages had created artificial scarcities that caused genuine suffering among populations who had no direct involvement in the conflict.
 

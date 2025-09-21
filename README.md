@@ -2381,7 +2381,7 @@ Commerce was dying along the supply routes that connected Hong Kong to Kangbashi
 
 The dead animals served as physical markers of how financial competition had corrupted traditional trade relationships, transforming merchants into combatants and commercial routes into battlefield terrain where economic and military objectives had become indistinguishable.
 
-Hannus had become expert at exploiting the[se] "self-generating" problems, emerg[ing] from his opponents' attempts to maintain organizational coherence across such vast and diverse populations. He acknowledged the similarities that occurred within Jege's horde to patterns he had observed in Western corporate environments—internal competition that consumed more energy than external threats, bureaucratic inefficiencies that multiplied with scale, and leadership structures that rewarded political skill over practical competence.
+Hannus had become expert at exploiting the[se] "self-generating" problems, emerg[ed] from his opponents' attempts to maintain organizational coherence across such vast and diverse populations. He acknowledged the similarities that occurred within Jege's horde to patterns he had observed in Western corporate environments—internal competition that consumed more energy than external threats, bureaucratic inefficiencies that multiplied with scale, and leadership structures that rewarded political skill over practical competence.
 
 These parallels allowed him to predict and manipulate coalition behavior through strategies that treated spiritual warfare as advanced human resources management, applying lessons learned from American business culture to military operations that his opponents approached through outdated frameworks of honor and collective purpose.
 

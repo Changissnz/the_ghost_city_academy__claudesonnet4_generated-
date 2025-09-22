@@ -2563,7 +2563,7 @@ The timelessness of the experience is why interaction is reminded in meaningful 
 
 The interaction could be merely exchanges—words spoken, promises made, agreements reached that serve temporary purposes without creating lasting obligations or genuine understanding between participants who remain fundamentally opposed in their objectives and worldviews.
 
-Nothing persists but the instance recalled, the specific moment when communication seemed to achieve something beyond mere transmission of tactical information or strategic deception. However, there is some bond that emerges such that written statements for or of actual alternatives has shades of uncertainty nearby.
+Nothing persists but the instance recalled, the specific moment when communication seemed to achieve something beyond mere transmission of tactical information or strategic deception. However, there is some bond that emerges such that written statements for or of actual alternatives ha[ve] shades of uncertainty nearby.
 
 Perhaps the officious nature of writing—for writing is more material than ephemeral sound—is why writing should be a more effective form of bond, creating records that could outlast the psychological states that had made temporary agreements seem meaningful or sustainable.
 

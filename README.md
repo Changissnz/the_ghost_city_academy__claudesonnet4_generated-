@@ -2446,7 +2446,7 @@ These two statements do not make much sense upon further inspection past persona
 
 Granger Causality emerged as a Western methodology named after a man Granger, a statistician whose personal insecurities had shaped his approach to analyzing temporal relationships in ways that revealed more about his psychological needs than about the phenomena he claimed to be studying objectively.
 
-Here was a man that was probably a liberal anti-anarchist—an abnormal phrasing that attempted to describe the psychological profile of someone so conflicted about authority that his intellectual work became a method for avoiding rather than confronting the fundamental questions about power and control that his statistical techniques were supposedly designed to clarify.
+Here was a man that was probably a liberal anti-anarchist—an abnormal phrasing that attempt[s] to describe the psychological profile of someone so conflicted about authority that his intellectual work became a method for avoiding rather than confronting the fundamental questions about power and control that his statistical techniques were supposedly designed to clarify.
 
 Granger Causality operated as a proof technique that attempted to remove the uncertainties of recognizable patterns by repeatedly arranging for the same hypothesized background variables, creating artificial conditions where correlation could be presented as causation through methodologies that concealed rather than revealed the actual mechanisms at work.
 

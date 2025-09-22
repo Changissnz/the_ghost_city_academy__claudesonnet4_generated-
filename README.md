@@ -2532,7 +2532,7 @@ The operation exploited basic human needs for connection and intimacy that prolo
 
 The S-PAIN solution had removed the red haze and yellow stings completely from [open or covert use], eliminating the psychological vulnerabilities that Hannus's forces had previously exploited through sophisticated consciousness manipulation.
 
-But Hannus had, in fact, prohibited further use of Spanish Facade systems because S-PAIN would always backfire on them, turning his own weaponry against his forces when deployed against enemies who possessed effective countermeasures. The tactical advantage that had once made his troops nearly invincible had become liability that could be exploited by sophisticated opponents.
+But Hannus had, in fact, prohibited further use of Spanish Facade because S-PAIN would always backfire on them, turning his own weaponry against his forces when deployed against enemies who possessed effective countermeasures. The tactical advantage that had once made his troops nearly invincible had become liability that could be exploited by sophisticated opponents.
 
 Girlia had persisted in the minds of susceptible Horde members despite the elimination of Spanish Facade effects, suggesting that some forms of psychological manipulation created lasting changes that could not be reversed through technological countermeasures alone. The damsel-in-distress operations became Kangbashi's more humanistic initiative for creating false connections that served intelligence-gathering purposes while appearing to address genuine human needs.
 

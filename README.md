@@ -2589,7 +2589,7 @@ Both linguistic traditions offer wisdom about human nature and social organizati
 
 During ceasefire, combatants find themselves caught between spells alternating between over-marketing of their cause's righteousness and over-contemplative vortices of living that can paralyze decision-making through excessive analysis of options that may not actually exist.
 
-The Athenian model of political rule is not designed for the financially ruinous mentalities, such as prolonged warfare, nor is it immune to plagues—whether biological, technological, or psychological—that cannot be contained even with measures involving non-crossing divisions that attempt to isolate different populations or interest groups.
+The Athenian model of political rule is not designed for financially ruinous mentalities, such as prolonged warfare, nor is it immune to plagues—whether biological, technological, or psychological—that cannot be contained even with measures involving non-crossing divisions that attempt to isolate different populations or interest groups.
 
 And that is perhaps the issue with language starting to poke fun at established authority structures.
 

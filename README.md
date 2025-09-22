@@ -2613,6 +2613,6 @@ The breaking that occurs during ceasefire may thus prove more decisive than any 
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-T H E   E N D. 
+T H E______________E N D. 
 
 *it's only a cliffhanger once they've peaked*

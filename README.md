@@ -2579,7 +2579,7 @@ Censorship measures work effectively to shape what can be discussed or remembere
 
 Sooner or later, the mark is hit, with or without recognition of that fact. Objectives are achieved through processes that may not be visible to those who implement them or experience their effects, making evaluation of success or failure dependent on criteria that participants may not share or understand.
 
-It is also something like this: The what-ifs turn into acceptance of lower forms in socially controlled settings where the ordering seems to especially matter in many instances. When perfect outcomes prove impossible, compromise becomes necessary, but the quality of compromise depends on the sincerity of participants who may have learned to simulate cooperation while pursuing incompatible objectives.
+It is also something like this: [t]he what-ifs turn into acceptance of lower forms in socially controlled settings where the ordering seems to especially matter in many instances. When perfect outcomes prove impossible, compromise becomes necessary, but the quality of compromise depends on the sincerity of participants who may have learned to simulate cooperation while pursuing incompatible objectives.
 
 Compromise and acceptance can be effective responses granted they are sincere rather than tactical maneuvers designed to create temporary advantages while preparing for renewed conflict. The Romantic languages encourage this indulgence in emotional expression and personal connection that can transcend political differences.
 

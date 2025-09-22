@@ -1366,7 +1366,7 @@ There is no captive woman in any tower requiring rescue by academic theorists or
 
 Furthermore, even if there was some genuine oppression occurring, her brothers would have to hate her because of the Duke's social influence—the way powerful figures manipulated family relationships by creating artificial conflicts that forced people to choose sides in disputes they didn't understand and couldn't resolve.
 
-The Duke would want her brothers dead on trumped up charges from some Silk Road that has become a swirl of ideological muck in the press and media. Modern trade disputes had been transformed into morality plays where economic competition was reframed as civilizational conflict, allowing political parasites to present their power struggles as battles between good and evil.
+The Duke would want her brothers dead on trumped up charges from some Silk Road that ha[d] become a swirl of ideological muck in the press and media. Modern trade disputes had been transformed into morality plays where economic competition was reframed as civilizational conflict, allowing political parasites to present their power struggles as battles between good and evil.
 
 Other people would hate the sister as a form of defense for the brothers and all that shit. The artificial polarization created by media manipulation forced individuals into antagonistic relationships that served no one's actual interests while providing content for news cycles and academic analysis.
 

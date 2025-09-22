@@ -2473,7 +2473,7 @@ Bakhtiya, Baktiya, Baktriya. The war had changed the individual, that much is ce
 
 Before embarking on his next mission—this time against a facility housing an advanced component for a specialized artificial intelligence system—Baktiya thought back on one of his discoveries before he left the USA. The memory surfaced with the clarity that came from prolonged combat, where past experiences provided context for present dangers.
 
-A group of people, officially sponsored by the USA but originally from South Africa, had gone to Mexico to strike a trade agreement in response to manufacturing and distribution issues that were affecting multiple continental supply chains. By many accounts, the group had been composed of wealthy African and English elites that were officially in debt to China—unsurprisingly, given the global financial arrangements that had preceded the current conflicts.
+A group of people, officially sponsored by the USA but originally from South Africa, had gone to Mexico to strike a trade agreement in response to manufacturing and distribution issues that were affecting multiple continental supply chains. By many accounts, the group had been composed of wealthy African and English elites that were officially in debt to China—[not] surprising, given the global financial arrangements that had preceded the current conflicts.
 
 Their attempt to be sole organization of benefactor for whatever trade opportunities existed in post-NAFTA Mexico had been ambitious but ultimately futile. There was probably a drive from the other end—competing interests that viewed exclusive arrangements as threats to their own strategic objectives—that had led to their all being violently murdered before any agreements could be finalized or implemented.
 

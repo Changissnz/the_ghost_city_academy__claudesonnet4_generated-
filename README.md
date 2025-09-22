@@ -2495,8 +2495,6 @@ The formal recognition they withheld was meaningless compared to the practical a
 
 At that point in time, Baktiya did not care about their approval or disapproval because he had Trakwiya by his side. The weapon system that had made him uniquely valuable also made him uniquely independent, since his tactical capabilities exceeded what any formal command structure could provide or replace.
 
-The relationship between individual ability and institutional authority that had frustrated him during his American exile was being resolved through direct action rather than negotiation. He had become what he had always been capable of becoming once freed from systems that demanded conformity rather than excellence.
-
 But independence carried its own costs and vulnerabilities. Operating outside formal command structures meant operating without the support networks that institutional membership provided. The hostile commanders who resented his autonomy would not be available to provide reinforcement or extraction if his independent operations encountered difficulties that exceeded his individual capabilities.
 
 The mini-theater where he had positioned himself offered tactical opportunities but also isolation from the larger strategic picture that Jege's formal commanders were supposed to coordinate. His effectiveness in specific operations might not contribute to broader objectives if his actions were not integrated with collective planning and resource allocation.

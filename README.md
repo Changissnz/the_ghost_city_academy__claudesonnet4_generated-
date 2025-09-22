@@ -2505,7 +2505,7 @@ Trakwiya provided technological advantages but could not substitute for the huma
 
 The AI component that his team had secured might prove valuable for the coalition's technological development, but its full potential could only be realized through research and development capabilities that required coordination between multiple specialists and facilities that individual operators could not maintain independently.
 
-The war that had changed Baktiya from exile to soldier to independent operator was approaching phases that would test whether individual capability could survive without institutional framework, whether technological advantage could substitute for social organization, and whether the pursuit of perfect autonomy would prove to be another form of isolation that served enemy objectives rather than personal development.
+The war that had changed Baktiya from exile to soldier to independent operator was approaching phases that would test whether individual capability could survive without institutional framework.
 
 The end that awaited Baktriya might not be death in battle but absorption back into institutional structures that would eliminate his independence while exploiting his capabilities, or alternatively, complete separation from collective objectives that would make his individual excellence irrelevant to outcomes that required coordinated effort rather than solo achievement.
 

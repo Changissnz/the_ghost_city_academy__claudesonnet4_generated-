@@ -2608,3 +2608,5 @@ The ceasefire reveals these underlying dynamics that active combat had temporari
 Word is not bond when words can be manipulated, reinterpreted, or simply ignored when circumstances change. Securities or no security becomes no bond in conflations of understanding value and application.
 
 The breaking that occurs during ceasefire may thus prove more decisive than any military victory or defeat, since it reveals whether the social and cultural foundations that justify continued fighting can survive the kind of examination that becomes possible when immediate survival requirements no longer suppress deeper questions about purpose, meaning, and the relationship between individual welfare and collective objectives.
+
+[In the background is a memory of an Irish-American merchant that got killed for falsifying free trade agreements across the Pacific Ocean. Trade that way did not work for the man.]
